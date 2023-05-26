@@ -1,0 +1,2 @@
+# Dys
+Deprem Ödevi
